@@ -18,8 +18,12 @@ sou corinthiano sofredor
 
 gosto de bagunçar na aula da pŕofessora cintia 
 
-ser camioneiro e ser bem sucedido 
+pretendo ser camioneiro e ser bem sucedido 
 
 entre em contato comigo pelo (joao.araujo12@escola.pr.gov.br)
 
-![](
+![](https://media.tenor.com/9og0Smmw_2EAAAAM/corinthians-sccp.gif)
+
+
+![](https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
+
